@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @vinaya0663
-- 👀 I’m interested in GAMING,CODING,RACING GAMES
+- 👀 I’m interested in GAMING,CODING
 - 🌱 I’m currently learning C,HTML,PYTHON
 - 📫 How to reach me vinayaloplop@gmail.com
 - 😄 Pronouns:he/him
